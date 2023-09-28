@@ -12,5 +12,5 @@ Here are some ideas to get you started:
      di classe ...
 - 💬 Ask me about americojk@icloud.com
 - 📫 cercami al seguente numero 3276134462 ...
-- ⚡ Fun fact: amo giocare , e sono sempre pronto a tutto!
+- ⚡ Fun fact: amo giocare , e sono sempre pronto a tutto!!
 
